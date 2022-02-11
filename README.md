@@ -1,1 +1,0 @@
-# Xandy-script.free-2022-Naw
